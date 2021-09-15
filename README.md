@@ -3,5 +3,5 @@
 OLÁ ! BEM VINDO AO MEU LIVRO DE RECEITAS :wave:
 
 - Strogonoff de frango
-- Pavê
+- Pave
 
